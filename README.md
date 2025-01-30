@@ -2,7 +2,7 @@
 
 **Five Nights at Freddy's 2 (FNAF 2)** es uno de los juegos de terror más populares de los últimos años, y ahora puedes disfrutarlo en tu dispositivo móvil descargando el APK. Este juego, creado por Scott Cawthon, te sumerge en una experiencia aterradora donde debes sobrevivir a cinco noches en una pizzería llena de animatrónicos hostiles.
 
- [Descargar FNAF 2 APK]https://fnaf2apk.net/) 
+ [Descargar FNAF 2 APK](https://fnaf2apk.net/) 
 
 ## ¡Descarga FNAF 2 APK Ahora!
 Si estás listo para vivir una experiencia llena de terror y adrenalina, haz clic en el botón de descarga a continuación y lleva el miedo contigo a donde quiera que vayas.
